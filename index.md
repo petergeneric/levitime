@@ -19,7 +19,7 @@ I decided to create this dataset because of how often Brent references denim in 
 | [10 Months Alone In An Abandoned Ghost Town](https://www.youtube.com/watch?v=RH8u-LYO4Rc) |  No denim!             |                              |
 | [Living Without Running Water \(In A Ghost Town\)](https://www.youtube.com/watch?v=RWzj8HlMGLE) | No denim!        |                              |
 | [I Spent Christmas In An Abandoned Mine](https://www.youtube.com/watch?v=WYs-1m0YSKQ#t=7m35) |  7:35               | Big denim hunt this week!    |
-| [I've Been Living In A Ghost Town For 9 Months!](https://www.youtube.com/watch?v=zlArwvId5fg) |                    |                              |
+| [I've Been Living In A Ghost Town For 9 Months!](https://www.youtube.com/watch?v=zlArwvId5fg#t=29m30) | 29:30                   |                              |
 | ["A Murder A Week" - The History Of Cerro Gordo, California](https://www.youtube.com/watch?v=ItfFOpZ8no8) |        |                              |
 | [Hiking Alone In Death Valley \(Looking for Abandoned Mines\)](https://www.youtube.com/watch?v=szrnV8RwxcI) |      |                              |
 | [Blowing Up Dynamite To Get Into An Abandoned Mine](https://www.youtube.com/watch?v=iV77JGhDVqk) |                 |                              |
