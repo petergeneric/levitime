@@ -33,9 +33,9 @@ I decided to create this dataset because of how often Brent references denim in 
 | [I Spent The Night Alone In An Abandoned Mine (With No Way Out)](https://www.youtube.com/watch?v=0JXfIryrv6s) |    |                              |
 | [Exploring The Most Dangerous Mine At Cerro Gordo (For The Last Time)](https://www.youtube.com/watch?v=eGgMfDTcum8) | |                           |
 | [6 Months Alone In A Ghost Town](https://www.youtube.com/watch?v=r9PPgAvXkEY)             |                        |                              |
-| [Getting Supplies (And Kittens) In An Abandoned Ghost Town](https://www.youtube.com/watch?v=gmNYOUYYjns) |         |                              |
+| [Getting Supplies (And Kittens) In An Abandoned Ghost Town](https://www.youtube.com/watch?v=gmNYOUYYjns) | No denim! |                            |
 | [Finding A 103 Year Old Jacket In An Abandoned Mine!](https://www.youtube.com/watch?v=VsHfcFEfCZA) |               |                              |
-| [Finding Dynamite, A Gun, and Denim In An Abandoned Mine](https://www.youtube.com/watch?v=z9FwPomT8_g#t=8m) | 8:00          |                              |
+| [Finding Dynamite, A Gun, and Denim In An Abandoned Mine](https://www.youtube.com/watch?v=z9FwPomT8_g#t=8m) | 8:00          | Denim scrap         |
 | [Finding A 100 Year Old Briefcase (And Treasure Map?) in Abandoned Ghost Town](https://www.youtube.com/watch?v=JbtnSeo3NVw) | |                   |
 | [Fire In A Ghost Town: Rebuilding the American Hotel at Cerro Gordo](https://www.youtube.com/watch?v=Rq1iGv0njNw) | |                             |
 | [Tragedy Strikes In The Ghost Town of Cerro Gordo](https://www.youtube.com/watch?v=NQ3CWspDCzE) |                  |                              |
