@@ -1,37 +1,17 @@
-## Welcome to GitHub Pages
+## levitime.com - Cerro Gordo Denim Reference Time index
 
-You can use the [editor on GitHub](https://github.com/petergeneric/levitime/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+This is a dumb site that records the point in [Ghost Town Living](https://www.youtube.com/c/GhostTownLiving) videos where denim is first referenced.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### Denim?!
 
-### Markdown
+Denim! Ghost Town Living is a YouTube channel by Brent Underwood about living in the abandoned mining ghost town of Cerro Gordo, California. He explores the beautiful landscape, learns about the town's history and goes into the old abandoned mine shafts - and is always seeking the most elusive of prey, antique denim (which can fetch quite a price on auction sites!)
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+I decided to create this dataset because of how often Brent references denim in his searches
 
-```markdown
-Syntax highlighted code block
+### Dataset
 
-# Header 1
-## Header 2
-### Header 3
 
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/petergeneric/levitime/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+| Date       | Link                                                | Denim Reference Time | Found?                  |
+| ---------- | --------------------------------------------------- | -------------------- | ----------------------- |
+| 2021-02-06 | https://www.youtube.com/watch?v=ATiCS7do60A         | No Denim!            |                         |
+| 2021-01-23 | https://www.youtube.com/watch?v=LpwaUU6sGFA#t=8m40  | 8:40                 | Old Levi Strauss Button |
