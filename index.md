@@ -11,7 +11,8 @@ I decided to create this dataset because of how often Brent references denim in 
 ### Dataset
 
 
-| Date       | Link                                                | Denim Reference Time | Found?                  |
-| ---------- | --------------------------------------------------- | -------------------- | ----------------------- |
-| 2021-02-06 | https://www.youtube.com/watch?v=ATiCS7do60A         | No Denim!            |                         |
-| 2021-01-23 | https://www.youtube.com/watch?v=LpwaUU6sGFA#t=8m40  | 8:40                 | Old Levi Strauss Button |
+| Date       | Link                                                  | Denim Reference Time | Found?                  |
+| ---------- | ----------------------------------------------------- | -------------------- | ----------------------- |
+| 2021-02-06 | [Finding The Lost Silver Spear Mine](https://www.youtube.com/watch?v=ATiCS7do60A)         | No Denim!            |                         |
+| 2021-01-31 | [Searching For The Lost Silver Spear Mine](https://www.youtube.com/watch?v=-6G-Zqh3HEQ)         |                      |                         |
+| 2021-01-23 | [Treasure Hunting Along The Famous Cerro Gordo Tramway](https://www.youtube.com/watch?v=LpwaUU6sGFA#t=8m40)  | 8:40                 | Old Levi Strauss Button |
