@@ -27,9 +27,9 @@ The Official Denim Reference Time is either:
 | [Living Without Running Water \(In A Ghost Town\)](https://www.youtube.com/watch?v=RWzj8HlMGLE) | No denim         |                              |
 | [I Spent Christmas In An Abandoned Mine](https://www.youtube.com/watch?v=WYs-1m0YSKQ#t=7m35) |  7:35               | Big denim hunt this week! Found some scraps on ladder   |
 | [I've Been Living In A Ghost Town For 9 Months!](https://www.youtube.com/watch?v=zlArwvId5fg#t=29m30) | 29:30      | Denim dreams                 |
-| ["A Murder A Week" - The History Of Cerro Gordo, California](https://www.youtube.com/watch?v=ItfFOpZ8no8) | No Denim |                           |
+| ["A Murder A Week" - The History Of Cerro Gordo, California](https://www.youtube.com/watch?v=ItfFOpZ8no8) | No Denim |                            |
 | [Hiking Alone In Death Valley \(Looking for Abandoned Mines\)](https://www.youtube.com/watch?v=szrnV8RwxcI#t=20m10) | 20:10 | Scrap of denim!     |
-| [Blowing Up Dynamite To Get Into An Abandoned Mine](https://www.youtube.com/watch?v=iV77JGhDVqk) |                 |                              |
+| [Blowing Up Dynamite To Get Into An Abandoned Mine](https://www.youtube.com/watch?v=iV77JGhDVqk#t=12m40) | 12:40    | No denim found              |
 | [8 Months Living Alone In A Ghost Town](https://www.youtube.com/watch?v=BYdb7g7yyvA#t=5m59)      | 5:59            | Dreams of finding jeans in roots |
 | [A Terrifying Descent Into An Abandoned Mine](https://www.youtube.com/watch?v=HlDg41-zizU) | No denim              |                              |
 | [Testing the World’s Brightest Flashlight in a Ghost Town](https://www.youtube.com/watch?v=TL2Ug9JzMIg) | No denim |                              |
