@@ -20,18 +20,18 @@ The Official Denim Reference Time is either:
 | Link                                                                                      | Denim Reference Time   | Notes                       |
 | ----------------------------------------------------------------------------------------- | ---------------------- | ---------------------------- |
 | [I've Been Living In A Ghost Town For 11 Months!](https://www.youtube.com/watch?v=zFygGNxmnpA#t=8m56) | 8:56       | Found denim scraps, also found non-demim trousers and referenced denim at 7:44!  |
-| [Finding The Lost Silver Spear Mine](https://www.youtube.com/watch?v=ATiCS7do60A)         |  No denim!             |                              |
-| [Searching For The Lost Silver Spear Mine](https://www.youtube.com/watch?v=-6G-Zqh3HEQ)   | No denim!              |                              |
+| [Finding The Lost Silver Spear Mine](https://www.youtube.com/watch?v=ATiCS7do60A)         |  No denim              |                              |
+| [Searching For The Lost Silver Spear Mine](https://www.youtube.com/watch?v=-6G-Zqh3HEQ)   | No denim               |                              |
 | [Treasure Hunting Along The Famous Cerro Gordo Tramway](https://www.youtube.com/watch?v=LpwaUU6sGFA#t=8m40) | 8:40 | Found an old Levi Strauss Button! |
-| [10 Months Alone In An Abandoned Ghost Town](https://www.youtube.com/watch?v=RH8u-LYO4Rc) |  No denim!             |                              |
-| [Living Without Running Water \(In A Ghost Town\)](https://www.youtube.com/watch?v=RWzj8HlMGLE) | No denim!        |                              |
+| [10 Months Alone In An Abandoned Ghost Town](https://www.youtube.com/watch?v=RH8u-LYO4Rc) |  No denim              |                              |
+| [Living Without Running Water \(In A Ghost Town\)](https://www.youtube.com/watch?v=RWzj8HlMGLE) | No denim         |                              |
 | [I Spent Christmas In An Abandoned Mine](https://www.youtube.com/watch?v=WYs-1m0YSKQ#t=7m35) |  7:35               | Big denim hunt this week! Found some scraps on ladder   |
 | [I've Been Living In A Ghost Town For 9 Months!](https://www.youtube.com/watch?v=zlArwvId5fg#t=29m30) | 29:30      | Denim dreams                 |
-| ["A Murder A Week" - The History Of Cerro Gordo, California](https://www.youtube.com/watch?v=ItfFOpZ8no8) | No Denim! |                           |
+| ["A Murder A Week" - The History Of Cerro Gordo, California](https://www.youtube.com/watch?v=ItfFOpZ8no8) | No Denim |                           |
 | [Hiking Alone In Death Valley \(Looking for Abandoned Mines\)](https://www.youtube.com/watch?v=szrnV8RwxcI#t=20m10) | 20:10 | Scrap of denim!     |
 | [Blowing Up Dynamite To Get Into An Abandoned Mine](https://www.youtube.com/watch?v=iV77JGhDVqk) |                 |                              |
-| [8 Months Living Alone In A Ghost Town](https://www.youtube.com/watch?v=BYdb7g7yyvA)      |                        |                              |
-| [A Terrifying Descent Into An Abandoned Mine](https://www.youtube.com/watch?v=HlDg41-zizU) |                       |                              |
+| [8 Months Living Alone In A Ghost Town](https://www.youtube.com/watch?v=BYdb7g7yyvA#t=5m59)      | 5:59            | Dreams of finding jeans in roots |
+| [A Terrifying Descent Into An Abandoned Mine](https://www.youtube.com/watch?v=HlDg41-zizU) | No denim              |                              |
 | [Testing the World’s Brightest Flashlight in a Ghost Town](https://www.youtube.com/watch?v=TL2Ug9JzMIg) | No denim |                              |
 | [Hunting For Valuable Bottles In A 150-Year-Old Dump](https://www.youtube.com/watch?v=Uq_SdQm_74I#t=6m46) | 6:46   | No denim found               |
 | [Ghost Hunting In A Ghost Town \(Cerro Gordo\)](https://www.youtube.com/watch?v=K4zNRwpQIKM#t=27m10) | 27:10       | Thinks he sees denim while scaring himself with ghost stories in a mine        |
