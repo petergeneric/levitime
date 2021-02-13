@@ -35,8 +35,8 @@ The Official Denim Reference Time is either:
 | [Testing the World’s Brightest Flashlight in a Ghost Town](https://www.youtube.com/watch?v=TL2Ug9JzMIg) |          |                              |
 | [Hunting For Valuable Bottles In A 150-Year-Old Dump](https://www.youtube.com/watch?v=Uq_SdQm_74I) |               |                              |
 | [Ghost Hunting In A Ghost Town \(Cerro Gordo\)](https://www.youtube.com/watch?v=K4zNRwpQIKM) |                     |                              |
-| [7 Months Living Alone In A Ghost Town](https://www.youtube.com/watch?v=eI7PpobQDrw)      |                        |                              |
-| [Day In The Life: I Own A Ghost Town](https://www.youtube.com/watch?v=rlrHLoJVAQ4#t=30m40) | 30:40                 | Old denim suspenders            |
+| [7 Months Living Alone In A Ghost Town](https://www.youtube.com/watch?v=eI7PpobQDrw#t=16m16)      | 16:16          | No denim found               |
+| [Day In The Life: I Own A Ghost Town](https://www.youtube.com/watch?v=rlrHLoJVAQ4#t=30m40) | 30:40                 | Old denim suspenders         |
 | [I Spent The Night Alone In An Abandoned Mine (With No Way Out)](https://www.youtube.com/watch?v=0JXfIryrv6s#t=26m7) | 26:07   | No denim found   |
 | [Exploring The Most Dangerous Mine At Cerro Gordo (For The Last Time)](https://www.youtube.com/watch?v=eGgMfDTcum8#t=4m30) | 4:30 | Found falling apart jeans at the sketchy 200 level of the mine  |
 | [6 Months Alone In A Ghost Town](https://www.youtube.com/watch?v=r9PPgAvXkEY)             |  No denim              |                              |
