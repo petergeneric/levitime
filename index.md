@@ -28,19 +28,19 @@ The Official Denim Reference Time is either:
 | [I Spent Christmas In An Abandoned Mine](https://www.youtube.com/watch?v=WYs-1m0YSKQ#t=7m35) |  7:35               | Big denim hunt this week! Found some scraps on ladder   |
 | [I've Been Living In A Ghost Town For 9 Months!](https://www.youtube.com/watch?v=zlArwvId5fg#t=29m30) | 29:30      | Denim dreams                 |
 | ["A Murder A Week" - The History Of Cerro Gordo, California](https://www.youtube.com/watch?v=ItfFOpZ8no8) | No Denim! |                           |
-| [Hiking Alone In Death Valley \(Looking for Abandoned Mines\)](https://www.youtube.com/watch?v=szrnV8RwxcI#t=20m10) | 20:10 | Scrap of denim!             |
+| [Hiking Alone In Death Valley \(Looking for Abandoned Mines\)](https://www.youtube.com/watch?v=szrnV8RwxcI#t=20m10) | 20:10 | Scrap of denim!     |
 | [Blowing Up Dynamite To Get Into An Abandoned Mine](https://www.youtube.com/watch?v=iV77JGhDVqk) |                 |                              |
 | [8 Months Living Alone In A Ghost Town](https://www.youtube.com/watch?v=BYdb7g7yyvA)      |                        |                              |
 | [A Terrifying Descent Into An Abandoned Mine](https://www.youtube.com/watch?v=HlDg41-zizU) |                       |                              |
 | [Testing the World’s Brightest Flashlight in a Ghost Town](https://www.youtube.com/watch?v=TL2Ug9JzMIg) |          |                              |
 | [Hunting For Valuable Bottles In A 150-Year-Old Dump](https://www.youtube.com/watch?v=Uq_SdQm_74I) |               |                              |
 | [Ghost Hunting In A Ghost Town \(Cerro Gordo\)](https://www.youtube.com/watch?v=K4zNRwpQIKM) |                     |                              |
-| [7 Months Living Alone In A Ghost Town](https://www.youtube.com/watch?v=eI7PpobQDrw)         |                     |                              |
-| [Day In The Life: I Own A Ghost Town](https://www.youtube.com/watch?v=rlrHLoJVAQ4)        |                        |                              |
+| [7 Months Living Alone In A Ghost Town](https://www.youtube.com/watch?v=eI7PpobQDrw)      |                        |                              |
+| [Day In The Life: I Own A Ghost Town](https://www.youtube.com/watch?v=rlrHLoJVAQ4#t=30m40) | 30:40                 | Old denim suspenders            |
 | [I Spent The Night Alone In An Abandoned Mine (With No Way Out)](https://www.youtube.com/watch?v=0JXfIryrv6s#t=26m7) | 26:07   | No denim found   |
 | [Exploring The Most Dangerous Mine At Cerro Gordo (For The Last Time)](https://www.youtube.com/watch?v=eGgMfDTcum8#t=4m30) | 4:30 | Found falling apart jeans at the sketchy 200 level of the mine  |
-| [6 Months Alone In A Ghost Town](https://www.youtube.com/watch?v=r9PPgAvXkEY)             |  No denim!             |                              |
-| [Getting Supplies (And Kittens) In An Abandoned Ghost Town](https://www.youtube.com/watch?v=gmNYOUYYjns) | No denim! |          |
+| [6 Months Alone In A Ghost Town](https://www.youtube.com/watch?v=r9PPgAvXkEY)             |  No denim              |                              |
+| [Getting Supplies (And Kittens) In An Abandoned Ghost Town](https://www.youtube.com/watch?v=gmNYOUYYjns) | No denim  |          |
 | [Finding A 103 Year Old Jacket In An Abandoned Mine!](https://www.youtube.com/watch?v=VsHfcFEfCZA#t=5m30) | 05:30     | Found some blue denim! Lots of searching for jeans, said he was searching for jeans at 00:07!   |
 | [Finding Dynamite, A Gun, and Denim In An Abandoned Mine](https://www.youtube.com/watch?v=z9FwPomT8_g#t=8m) | 8:00          | Denim scrap         |
 | [Finding A 100 Year Old Briefcase (And Treasure Map?) in Abandoned Ghost Town](https://www.youtube.com/watch?v=JbtnSeo3NVw) | No denim |                   |
