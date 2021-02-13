@@ -13,6 +13,7 @@ I decided to create this dataset because of how often Brent references denim in 
 
 | Link                                                                                      | Denim Reference Time   | Notes                       |
 | ----------------------------------------------------------------------------------------- | ---------------------- | ---------------------------- |
+| [I've Been Living In A Ghost Town For 11 Months!](https://www.youtube.com/watch?v=zFygGNxmnpA) | ~ 11:00           | Found scraps, also found non-demim trousers!                |
 | [Finding The Lost Silver Spear Mine](https://www.youtube.com/watch?v=ATiCS7do60A)         |  No denim!             |                              |
 | [Searching For The Lost Silver Spear Mine](https://www.youtube.com/watch?v=-6G-Zqh3HEQ)   | No denim!              |                              |
 | [Treasure Hunting Along The Famous Cerro Gordo Tramway](https://www.youtube.com/watch?v=LpwaUU6sGFA#t=8m40) | 8:40 | Found an old Levi Strauss Button! |
