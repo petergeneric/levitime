@@ -32,9 +32,9 @@ The Official Denim Reference Time is either:
 | [Blowing Up Dynamite To Get Into An Abandoned Mine](https://www.youtube.com/watch?v=iV77JGhDVqk) |                 |                              |
 | [8 Months Living Alone In A Ghost Town](https://www.youtube.com/watch?v=BYdb7g7yyvA)      |                        |                              |
 | [A Terrifying Descent Into An Abandoned Mine](https://www.youtube.com/watch?v=HlDg41-zizU) |                       |                              |
-| [Testing the World’s Brightest Flashlight in a Ghost Town](https://www.youtube.com/watch?v=TL2Ug9JzMIg) |          |                              |
-| [Hunting For Valuable Bottles In A 150-Year-Old Dump](https://www.youtube.com/watch?v=Uq_SdQm_74I) |               |                              |
-| [Ghost Hunting In A Ghost Town \(Cerro Gordo\)](https://www.youtube.com/watch?v=K4zNRwpQIKM) |                     |                              |
+| [Testing the World’s Brightest Flashlight in a Ghost Town](https://www.youtube.com/watch?v=TL2Ug9JzMIg) | No denim |                              |
+| [Hunting For Valuable Bottles In A 150-Year-Old Dump](https://www.youtube.com/watch?v=Uq_SdQm_74I#t=6m46) | 6:46   | No denim found               |
+| [Ghost Hunting In A Ghost Town \(Cerro Gordo\)](https://www.youtube.com/watch?v=K4zNRwpQIKM#t=27m10) | 27:10       | Thinks he sees denim while scaring himself with ghost stories in a mine        |
 | [7 Months Living Alone In A Ghost Town](https://www.youtube.com/watch?v=eI7PpobQDrw#t=16m16)      | 16:16          | No denim found               |
 | [Day In The Life: I Own A Ghost Town](https://www.youtube.com/watch?v=rlrHLoJVAQ4#t=30m40) | 30:40                 | Old denim suspenders         |
 | [I Spent The Night Alone In An Abandoned Mine (With No Way Out)](https://www.youtube.com/watch?v=0JXfIryrv6s#t=26m7) | 26:07   | No denim found   |
