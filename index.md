@@ -43,7 +43,7 @@ The Official Denim Reference Time is either:
 | [Getting Supplies (And Kittens) In An Abandoned Ghost Town](https://www.youtube.com/watch?v=gmNYOUYYjns) | No denim! |          |
 | [Finding A 103 Year Old Jacket In An Abandoned Mine!](https://www.youtube.com/watch?v=VsHfcFEfCZA#t=5m30) | 05:30     | Found some blue denim! Lots of searching for jeans, said he was searching for jeans at 00:07!   |
 | [Finding Dynamite, A Gun, and Denim In An Abandoned Mine](https://www.youtube.com/watch?v=z9FwPomT8_g#t=8m) | 8:00          | Denim scrap         |
-| [Finding A 100 Year Old Briefcase (And Treasure Map?) in Abandoned Ghost Town](https://www.youtube.com/watch?v=JbtnSeo3NVw) | |                   |
+| [Finding A 100 Year Old Briefcase (And Treasure Map?) in Abandoned Ghost Town](https://www.youtube.com/watch?v=JbtnSeo3NVw) | No denim |                   |
 | [Fire In A Ghost Town: Rebuilding the American Hotel at Cerro Gordo](https://www.youtube.com/watch?v=Rq1iGv0njNw) | No denim |                             |
 | [Tragedy Strikes In The Ghost Town of Cerro Gordo](https://www.youtube.com/watch?v=NQ3CWspDCzE) | No denim        |                              |
 | [I Bought A Town. Here's A Tour. (Cerro Gordo)](https://www.youtube.com/watch?v=bMRyfgjpaa0)    | No denim        |                              |
