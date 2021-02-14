@@ -22,7 +22,7 @@ The Official Denim Reference Time is either:
 | [I've Been Living In A Ghost Town For 11 Months!](https://www.youtube.com/watch?v=zFygGNxmnpA#t=8m56) | 8:56       | Found denim scraps, also found non-demim trousers and referenced denim at 7:44!  |
 | [Finding The Lost Silver Spear Mine](https://www.youtube.com/watch?v=ATiCS7do60A)         |  No denim              |                              |
 | [Searching For The Lost Silver Spear Mine](https://www.youtube.com/watch?v=-6G-Zqh3HEQ)   | No denim               |                              |
-| [Treasure Hunting Along The Famous Cerro Gordo Tramway](https://www.youtube.com/watch?v=LpwaUU6sGFA#t=8m40) | 8:40 | Found an old Levi Strauss Button! |
+| [Treasure Hunting Along The Famous Cerro Gordo Tramway](https://www.youtube.com/watch?v=LpwaUU6sGFA#t=8m36) | 8:36 | Found an old Levi Strauss Button! |
 | [10 Months Alone In An Abandoned Ghost Town](https://www.youtube.com/watch?v=RH8u-LYO4Rc) |  No denim              |                              |
 | [Living Without Running Water \(In A Ghost Town\)](https://www.youtube.com/watch?v=RWzj8HlMGLE) | No denim         |                              |
 | [I Spent Christmas In An Abandoned Mine](https://www.youtube.com/watch?v=WYs-1m0YSKQ#t=7m35) |  7:35               | Big denim hunt this week! Found some scraps on ladder   |
