@@ -1,5 +1,3 @@
-## levitime.com - Cerro Gordo Denim Reference Time index
-
 This is a dumb site that records the point in [Ghost Town Living](https://www.youtube.com/c/GhostTownLiving) videos where denim is first referenced.
 
 ### Denim?!
