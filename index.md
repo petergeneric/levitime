@@ -17,7 +17,8 @@ The Official Denim Reference Time is either:
 
 | Link                                                                                      | Denim Reference Time   | Notes                       |
 | ----------------------------------------------------------------------------------------- | ---------------------- | ---------------------------- |
-| [Restoring A 100 Year Old Bunkhouse In A Ghost Town](https://www.youtube.com/watch?v=a-5_HILuIT8) | No denim | |
+| [I Visited The Oldest Trees In The World](https://www.youtube.com/watch?v=IJWPqit6hao)    | No denim               | Beautiful ancient forest though! |
+| [Restoring A 100 Year Old Bunkhouse In A Ghost Town](https://www.youtube.com/watch?v=a-5_HILuIT8) | No denim        | |
 | [I've Been Living In A Ghost Town For 11 Months!](https://www.youtube.com/watch?v=zFygGNxmnpA#t=8m56) | 8:56       | Found denim scraps, also found non-demim trousers and referenced denim at 7:44!  |
 | [Finding The Lost Silver Spear Mine](https://www.youtube.com/watch?v=ATiCS7do60A)         |  No denim              |                              |
 | [Searching For The Lost Silver Spear Mine](https://www.youtube.com/watch?v=-6G-Zqh3HEQ)   | No denim               |                              |
