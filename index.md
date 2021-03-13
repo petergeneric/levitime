@@ -17,6 +17,7 @@ The Official Denim Reference Time is either:
 
 | Link                                                                                      | Denim Reference Time   | Notes                       |
 | ----------------------------------------------------------------------------------------- | ---------------------- | ---------------------------- |
+| [1 Year Alone In An Abandoned Ghost Town](https://www.youtube.com/watch?v=l4Iu3YB0pTs#t=7m50) | Clip of finding denim jacket  |                              |
 | [I Visited The Oldest Trees In The World](https://www.youtube.com/watch?v=IJWPqit6hao)    | No denim               | Beautiful ancient forest though! |
 | [Restoring A 100 Year Old Bunkhouse In A Ghost Town](https://www.youtube.com/watch?v=a-5_HILuIT8) | No denim        | |
 | [I've Been Living In A Ghost Town For 11 Months!](https://www.youtube.com/watch?v=zFygGNxmnpA#t=8m56) | 8:56       | Found denim scraps, also found non-demim trousers and referenced denim at 7:44!  |
