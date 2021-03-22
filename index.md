@@ -17,6 +17,7 @@ The Official Denim Reference Time is either:
 
 | Link                                                                                      | Denim Reference Time   | Notes                       |
 | ----------------------------------------------------------------------------------------- | ---------------------- | ---------------------------- |
+| [I Found An Abandoned Cabin In The Woods \(And Fixed It Up\)](https://www.youtube.com/watch?v=qCMStV3xB44) | 0:46  | "Let's hope for mines, cabins and levi jeans" |
 | [1 Year Alone In An Abandoned Ghost Town](https://www.youtube.com/watch?v=l4Iu3YB0pTs#t=7m50) | Clip of finding denim jacket  |                              |
 | [I Visited The Oldest Trees In The World](https://www.youtube.com/watch?v=IJWPqit6hao)    | No denim               | Beautiful ancient forest though! |
 | [Restoring A 100 Year Old Bunkhouse In A Ghost Town](https://www.youtube.com/watch?v=a-5_HILuIT8) | No denim        | |
