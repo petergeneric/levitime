@@ -18,6 +18,8 @@ The Official Denim Reference Time is either:
 | Link                                                                                      | Denim Reference Time   | Notes                       |
 | ----------------------------------------------------------------------------------------- | ---------------------- | ---------------------------- |
 | [New Residents Have Moved Into The Ghost Town...](https://www.youtube.com/watch?v=svBARTnderA) | No denim | No denim, but some very cute alpacas! |
+| [Going 700 Ft Down A Mineshaft For Treasure and Water](https://www.youtube.com/watch?v=6c7MiqYdTEw) | |
+| [13 Months Living In An Abandoned Ghost Town!](https://www.youtube.com/watch?v=vYDNICwwOmg) | |
 | [Exploring a $40,000,000 Gold Mine?](https://www.youtube.com/watch?v=hOOSir_EoLQ#t=7m51) | 7:51 | "When I hear a story of a guy finding ... jeans" |
 | [I Found An Abandoned Cabin In The Woods \(And Fixed It Up\)](https://www.youtube.com/watch?v=qCMStV3xB44) | 0:46  | "Let's hope for mines, cabins and levi jeans" |
 | [1 Year Alone In An Abandoned Ghost Town](https://www.youtube.com/watch?v=l4Iu3YB0pTs#t=7m50) | Clip of finding denim jacket  |                              |
