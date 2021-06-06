@@ -17,7 +17,7 @@ The Official Denim Reference Time is either:
 
 | Link                                                                                      | Denim Reference Time   | Notes                       |
 | ----------------------------------------------------------------------------------------- | ---------------------- | ---------------------------- |
-| [My Most Dangerous Mine Exploration Yet...](https://www.youtube.com/watch?v=hcTgyCI3SVg#t=10m13] | 10:13 | Thinks he sees denim, but just ore bags |
+| [My Most Dangerous Mine Exploration Yet...](https://www.youtube.com/watch?v=hcTgyCI3SVg#t=10m13) | 10:13 | Thinks he sees denim, but just ore bags |
 | [New Residents Have Moved Into The Ghost Town...](https://www.youtube.com/watch?v=svBARTnderA) | No denim | No denim, but some very cute alpacas! |
 | [Going 700 Ft Down A Mineshaft For Treasure and Water](https://www.youtube.com/watch?v=6c7MiqYdTEw#t=8m39) | 8:39 | Scraps |
 | [13 Months Living In An Abandoned Ghost Town!](https://www.youtube.com/watch?v=vYDNICwwOmg) | |
