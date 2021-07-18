@@ -20,7 +20,7 @@ The Official Denim Reference Time is either:
 | [16 Months Living In An Abandoned Ghost Town](https://www.youtube.com/watch?v=2pcG0D4vCzU#t=14m30) | 14:30 | Mention and showing old footage |
 | [Hiking The Historic Saline Valley Salt Tram (HARD!)](https://www.youtube.com/watch?v=iuk0B2itiXo) | No denim | Exciting hike |
 | [Exploring The 900 Level of The Union Mine!](https://www.youtube.com/watch?v=JJSTBl8fFwA#t=22m29) | 22:30 | Denim! At the 900ft level in a dynamite box |
-| [I've Been Rebuilding A Ghost Town For 15 Months!](https://www.youtube.com/watch?v=HvjVdlMqwH4) | | |
+| [I've Been Rebuilding A Ghost Town For 15 Months!](https://www.youtube.com/watch?v=HvjVdlMqwH4) | No denim | |
 | [Rebuilding The American Hotel Has Begun! (ft. Heavy D Sparks)](https://www.youtube.com/watch?v=le68Fmooqlk) | No denim | |
 | [My Most Dangerous Mine Exploration Yet...](https://www.youtube.com/watch?v=hcTgyCI3SVg#t=10m13) | 10:13 | Thinks he sees denim, but just ore bags |
 | [New Residents Have Moved Into The Ghost Town...](https://www.youtube.com/watch?v=svBARTnderA) | No denim | No denim, but some very cute alpacas! |
