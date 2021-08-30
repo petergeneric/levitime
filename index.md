@@ -17,7 +17,7 @@ The Official Denim Reference Time is either:
 
 | Link                                                                                      | Denim Reference Time   | Notes                       |
 | ----------------------------------------------------------------------------------------- | ---------------------- | ---------------------------- |
-| [I Found 100 Year Old Levi’s Down An Abandoned Mine Finally!](https://www.youtube.com/watch?v=QUvLJ4larbQ&t=24m42) | 24:42 | Levi Strauss!! |
+| [I Found 100 Year Old Levi’s Down An Abandoned Mine Finally!](https://www.youtube.com/watch?v=QUvLJ4larbQ#t=24m42) | 24:42 | Levi Strauss!! |
 | [My Biggest Mine Discovery Yet (Down A 1,100 Ft Pit)](https://www.youtube.com/watch?v=lJyraaYtni4) | | |
 | [16 Months Living In An Abandoned Ghost Town](https://www.youtube.com/watch?v=2pcG0D4vCzU#t=14m30) | 14:30 | Mention and showing old footage |
 | [Hiking The Historic Saline Valley Salt Tram (HARD!)](https://www.youtube.com/watch?v=iuk0B2itiXo) | No denim | Exciting hike |
